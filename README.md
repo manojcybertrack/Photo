@@ -9,4 +9,4 @@ While this is an entry-level achievement, it served as a strong foundation and a
 Since then, I have not focused on collecting more certificates — instead, I’ve committed myself to building practical skills, hands-on experience, and deep technical knowledge.
 
 
-[![My First Certificate](photos/czoxMzoiNDYwNDk1OF8xMDA1NiI7.jpeg)](photos/)
+🔗 [Click here to view certificate image directly](czoxMzoiNDYwNDk1OF8xMDA1NiI7.jpeg)
