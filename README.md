@@ -1,4 +1,4 @@
-# Photo
+# Certifications
  My First Certificate (Entry-Level)
 
 > This certificate marks a very special moment in my journey — it was my first-ever certificate in the field of cybersecurity.
