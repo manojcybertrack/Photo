@@ -10,4 +10,4 @@ Since then, I have not focused on collecting more certificates — instead, I’
 
 
 🔗 [Click here to view certificate image directly](czoxMzoiNDYwNDk1OF8xMDA1NiI7.jpeg)
-🔗 [Click here to view certificate image directly](पूरा करने का प्रमाणपत्र _ SkillsBuild.pdf)
+
